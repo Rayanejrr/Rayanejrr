@@ -2,7 +2,6 @@
 - 👀 I’m interested in football
 - 🌱 I’m currently learning a little of all 
 - 📫 How to reach me : rayane.jrr
-- 😄 Pronouns: Junior
 - ⚡ Fun fact: no
 
 <!---
